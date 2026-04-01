@@ -30,7 +30,7 @@
 
 ## 📫 Contact Me
 
-* LinkedIn: (Add your link)
+* LinkedIn: (💼 LinkedIn: [Visit My Profile]https://www.linkedin.com/in/anjna-patel-a9b6b6157/))
 * Email: (your email)
 
 ---
