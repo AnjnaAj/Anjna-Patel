@@ -31,7 +31,7 @@
 ## 📫 Contact Me
 
 * 💼 LinkedIn: https://www.linkedin.com/in/anjna-patel-a9b6b6157/
-* Email: (your email)
+* Email: anjnapatel737@gmail.com
 
 ---
 
